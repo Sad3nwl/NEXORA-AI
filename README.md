@@ -1,1 +1,2 @@
 #NEXORA AI
+njkfbfnkbnbldf
