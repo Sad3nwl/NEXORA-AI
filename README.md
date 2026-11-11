@@ -1,1 +1,1 @@
-# SENTRIX-AI
+#NEXORA AI
